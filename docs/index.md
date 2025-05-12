@@ -1,4 +1,4 @@
-#  DagJag Home Office Dagmara Jagła
+#  Usługi biurowe
 
 Zyskaj czas dla twoich klientów i skoncentruj się na kluczowych obszarach swojej dzialalnosci.
 
