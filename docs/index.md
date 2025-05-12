@@ -1,5 +1,8 @@
 #  Usługi biurowe
 
+
+![dagjag](img.jpeg)
+
 Zyskaj czas dla twoich klientów i skoncentruj się na kluczowych obszarach swojej dzialalnosci.
 
 Outsourcing administracyjno-biurowy to proces przekazywania zadań związanych z obsługa
