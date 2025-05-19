@@ -22,4 +22,4 @@ działanosci.
 Koszt zależy od zakresu usług oraz specyfiki działalności klienta . Cena jest dostosowana
 indywidualnie aby zapewnić najbardziej efektywne i ekonomiczne rozwiązania
 
-Zapraszam do kontaktu: dagmara_mail@op.pl
+[Zapraszam do kontaktu](mailto:dagmara_mail@op.pl)
