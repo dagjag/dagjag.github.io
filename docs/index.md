@@ -1,12 +1,11 @@
 #  Usługi biurowe
 
-
 ![dagjag](img.jpeg)
 
 Zyskaj czas dla twoich klientów i skoncentruj się na kluczowych obszarach swojej dzialalnosci.
 
 Outsourcing administracyjno-biurowy to proces przekazywania zadań związanych z obsługa
-administracyjna i biurowa firmie zewnętrznej. Mogą tobą to być codzienne czynności , zadania
+administracyjna i biurowa firmie zewnętrznej. Mogą tobą to być codzienne czynności, zadania
 których nie lubisz lub nie potrafisz robić , związane z prowadzeniem przez Ciebie działalności.
 
 
