@@ -30,4 +30,4 @@ Koszt zależy od zakresu usług oraz specyfiki działalności klienta. Cena jest
 indywidualnie aby zapewnić najbardziej efektywne i ekonomiczne rozwiązania.
 
 
-[Zapraszam do kontaktu] mail:      dagmara_mail@op.pl         Tel: 504368740
+[Zapraszam do kontaktu] mail:      dagmara_mail@op.pl       Tel: 504368740   NIP 5571549590
