@@ -8,6 +8,7 @@ Zyskaj czas dla twoich klientów i skoncentruj się na kluczowych obszarach swoj
 administracyjną i biurową firmie zewnętrznej. Mogą to być codzienne czynności, zadania
 których nie lubisz lub nie potrafisz robić, związane z prowadzeniem przez Ciebie dzialalności.
 Potrzebujesz optymalizacji procesów i lepszej efektywności pracy możesz oddelegować zadania administracyjno-biurowe i inne, które wykonam za Ciebie.
+
   Obejmuje to takie czynności jak:
 -zarządzenie dokumentacja, porządkowanie i archiwizacja dokumentów
 -obsuga korespondencji tradycyjnej i elektronicznej 
@@ -23,4 +24,4 @@ Koszt zależy od zakresu usług oraz specyfiki działalności klienta. Cena jest
 indywidualnie aby zapewnić najbardziej efektywne i ekonomiczne rozwiązania.
 
 
-[Zapraszam do kontaktu] email:dagmara_mail@op.pl       Tel: 504368740              NIP  5571549590
+Zapraszam do kontaktu     email:dagmara_mail@op.pl       Tel: 504368740              NIP: 5571549590
